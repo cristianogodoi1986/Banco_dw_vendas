@@ -63,7 +63,7 @@ Criar uma base analítica robusta para suportar decisões estratégicas de negó
 ## 📬 Contato
 
 **Cristiano De Godoi**  
-📧 cristiano@email.com  
-🔗 [LinkedIn](https://linkedin.com/in/seuusuario)
+📧 cristiano.godoi10@hotmail.com
+🔗 [LinkedIn](https://www.linkedin.com/in/cristiano-godoi-franciscano-25508683/)
 
 ---
